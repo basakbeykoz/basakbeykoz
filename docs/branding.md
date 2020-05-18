@@ -1,8 +1,7 @@
 # Branding
 ## Basic description of the service performed by Basak Beykoz
 
-Basak Beykoz offers a service that is meant to connects her clients
-with their own true nature. It's all about her clients realizing their own potential and capabilities, and using these to either overcome their challenges and/or leap towards things that they set as personal goals.
+Basak Beykoz offers a service that is meant to connects her clients with their own true nature. It's all about her clients realizing their own potential and capabilities, and using these to either overcome their challenges and/or leap towards things that they set as personal goals.
 
 The nature of the life coaching service puts the client at the driver seat while Basak Beykoz joins the client as the co-pilot. Basak's work can be better described as being a mirror that only reflects things about the client that would help them to grow or reach their goals. She does misrepresent her client's nature to themselves, but rather helps  them to notice dysfunctional and/or detrimental aspects of their  thinking, and nudges them to rethink their past traumas and long-set and forgotten opinions on ideas that may require some revision by the client.
 
